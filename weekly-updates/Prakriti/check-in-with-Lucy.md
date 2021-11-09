@@ -2,10 +2,24 @@
 
 *Check-in meetings with Prakriti approximately once every week*
 
-
-[Date: 3rd November 2021](#date-03-October-2021)
+[Date: 9th November 2021](#date-09-October-2021). 
+[Date: 3rd November 2021](#date-03-October-2021). 
 [Date: 20th October 2021](#date-20-October-2021)
 
+### Date: 03 October 2021
+
+**Who helped you this week?**
+
+**What did you achieve?**
+
+**What did you struggle with?**
+
+**What would you like to work on next week?**
+
+
+**Where do you need help from Lucy?**
+- Arrange iMac order
+- Contact Ben next week if we have not heard anything
 
 ### Date: 03 October 2021
 
